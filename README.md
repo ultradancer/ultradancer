@@ -1,5 +1,5 @@
-![](https://files.catbox.moe/9j5oy9.gif)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31livhve32iik7l5hmzariq5qcou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=aeb8d2&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)![](https://files.catbox.moe/js1lh7.gif)
+https://github.com/user-attachments/assets/6e4c345b-869c-4a54-9ee8-60d103b6a5c4
 
+mostly on idle which means im offtab doing something else, more likely to see messages if you whisper. you're free to sit next to me always idm (c+h as they say). i am a sensitive soul.
 
-they would tear eachother apart if this giant song wasn't in the way. 
-do you know that? its important to me that you understand
+<img width="150" height="130" alt="image" src="https://github.com/user-attachments/assets/73ac6fdb-5d38-41ea-90ca-e6227f3fdc6a" />
